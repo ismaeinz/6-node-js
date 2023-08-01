@@ -32,3 +32,10 @@ https://www.youtube.com/playlist?list=PLkzDzmo9y3VETa2XvIch29djB47v4zJQS
 
 
 https://www.youtube.com/playlist?list=PLC3y8-rFHvwh8shCMHFA5kWxD9PaPwxaY
+
+اليوم قررت العودة لتعلم النود والباك اند :
+طريقة التعلم هتبدأ بقراءة مقالات بسيطة في النود والباك اند وطرق التعلم ثم نبدأ بترتيب الكورسات والله المستعان :
+الكورس الأول من عندDave Gray :
+https://www.youtube.com/watch?v=f2EqECiTBL8
+
+
