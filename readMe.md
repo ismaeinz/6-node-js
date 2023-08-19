@@ -43,3 +43,6 @@ https://www.youtube.com/watch?v=f2EqECiTBL8
 
   كورس ماكس من يوديمي :
 https://www.udemy.com/course/nodejs-the-complete-guide/
+<!--  -->
+المطلوب مراجعه علي ما تم عمله في اخر سكشن
+نوبنا التوقف مرة أخري عن تعلم الـnodeJs نكتفي الان بالرياكت جي اس والرياكت نيتف والنيكست جي اس
